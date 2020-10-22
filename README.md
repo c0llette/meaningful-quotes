@@ -1,7 +1,5 @@
 # meaningful-quotes
 
-quotes that help motivate us to live or do something
-move. don't die. 
-swing your hair because you've got better hair than zenn.
-smile because you look ugly if you don't
-live because others can't
+"The way I see it, if you want the rainbow, you gotta put up with the rain."
+~ Dolly Parton
+You will have to go through challenges in order to achieve success as success does not come easy. 
